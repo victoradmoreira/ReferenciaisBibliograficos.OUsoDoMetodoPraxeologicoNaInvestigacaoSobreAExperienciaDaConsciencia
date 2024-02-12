@@ -1,0 +1,2 @@
+# ReferenciaisBibliograficos.OUsoDoMetodoPraxeologicoNaInvestigacaoSobreAExperienciaDaConsciencia
+Repositório destinado a prover acesso à referências bibliográficas
